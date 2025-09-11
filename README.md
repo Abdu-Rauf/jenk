@@ -1,4 +1,4 @@
 "# jenk" 
 "# jenk" 
 man is pulled towards the sea
-even if it mean
+even if it means to
